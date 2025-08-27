@@ -1,5 +1,3 @@
-Proposal 2
-
 Five-page HTML for POE formative 1 PART 1
 
 Niven Padayachy -ST10471559
